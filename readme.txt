@@ -1,0 +1,1 @@
+Create branch is quick and simple.
